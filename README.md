@@ -1,0 +1,1 @@
+# DSTU-7564-Kupyna
